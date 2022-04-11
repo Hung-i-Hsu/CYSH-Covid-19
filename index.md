@@ -41,3 +41,12 @@
 [嘉義市政府4月10日新聞稿](https://www.chiayi.gov.tw/News_Content.aspx?n=454&sms=9149&s=639411)
 
 [嘉義縣政府4月10日新聞稿](https://www.cyhg.gov.tw/News_Content.aspx?n=20C1A3DAF6A74FCE&sms=CA3FB4291106E1D9&s=1B3FCFACA3BA612B)
+
+## 2022年4月11日
+
+嘉義市政府疫調接觸者後共計匡列166人(教職員工62、學生104人)進行居家隔離或自主健康管理，停課延長至4月18日(星期一)。
+
+
+詳情請見國立嘉義高級中學公告：
+
+[嘉義高中因應確診個案全校停課不停學通知](https://www.cysh.cy.edu.tw/var/file/8/1008/img/847467877.pdf)
